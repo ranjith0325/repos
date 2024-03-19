@@ -1,6 +1,0 @@
-# ranjith
-
-
-## vikram
-
-### rajinikanth
